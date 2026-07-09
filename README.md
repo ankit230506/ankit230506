@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on BFSI Project<br>I'm currently Learning Artificial Intelligence and Machine Learning<br>I'm  looking to collaborate with new organizations
+I'm currently Learning Artificial Intelligence and Machine Learning<br>I'm  looking to collaborate with new organizations
 
 
 ## 🌐 Socials:
